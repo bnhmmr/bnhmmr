@@ -13,4 +13,4 @@ me
 
 
 
-cherry is gay she keeps kissing me....... cries
+cherry is gayer she smells and meanie....... cries
