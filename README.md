@@ -6,8 +6,10 @@
 
 hi uhh **dni** if you kin 007n7 or Avery cuz uh they're my (hvy)kins too and i get uncomfortable with other kins like them, thank you! 💚
 
-![17684111839485566811703558249056](https://github.com/user-attachments/assets/6371ed9c-fd56-4f61-bdc8-2a654937a3c8)
+
 me
+![17684111839485566811703558249056](https://github.com/user-attachments/assets/6371ed9c-fd56-4f61-bdc8-2a654937a3c8)
+
 
 
 
