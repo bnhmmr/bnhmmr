@@ -1,4 +1,5 @@
-![17675375149793775228528291014730](https://github.com/user-attachments/assets/c53b195c-88c3-4e74-b6ca-e5a2c908eaca)
+<img width="572" height="560" alt="17684112423092769093535080963650" src="https://github.com/user-attachments/assets/1ae26581-695e-4733-b0db-d13b3f477990" />
+
 
 
    my [strawpage](https://sealwglasses.straw.page)
@@ -6,3 +7,4 @@
 hi uhh **dni** if you kin 007n7 or Avery cuz uh they're my (hvy)kins too and i get uncomfortable with other kins like them, thank you! 💚
 
 ![17684111839485566811703558249056](https://github.com/user-attachments/assets/6371ed9c-fd56-4f61-bdc8-2a654937a3c8)
+me
