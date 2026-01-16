@@ -11,7 +11,8 @@
 
 
 
-# basic dni criteria
+# ![17685855899453311712887122293130](https://github.com/user-attachments/assets/265a38ac-efe4-42cb-a939-3480c7c53828) basic dni criteria
+
 homophobic, racist, proshipper, sexist, **etc**...
 
 **DNI** skaterlight fans and ***under*** 14 y/o
