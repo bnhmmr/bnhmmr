@@ -9,6 +9,7 @@
 
    my [strawpage](https://sealwglasses.straw.page) ![17685450908482543459199511744075](https://github.com/user-attachments/assets/f1cdc8af-9060-4d57-b9e2-2f0a02561dee)
 
+![17685857462735821610594544884407](https://github.com/user-attachments/assets/17868752-55f5-46f4-8364-644e345e9d25)
 
 
 # ![17685855899453311712887122293130](https://github.com/user-attachments/assets/265a38ac-efe4-42cb-a939-3480c7c53828) basic dni criteria
