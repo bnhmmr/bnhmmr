@@ -17,7 +17,7 @@ homophobic, racist, proshipper, sexist, **etc**...
 **DNI** skaterlight fans and ***under*** 14 y/o
 <img width="400" height="400" alt="17685439073838610555471910641214" src="https://github.com/user-attachments/assets/7a7e54d9-a3bf-4b69-8ff6-e2993ceace72" />
 
-𑣲
+Ი︵𐑼
 
 <img width="99" height="55" alt="17685437075894787995082928323334" src="https://github.com/user-attachments/assets/2ad5594a-8ab5-4028-88e6-4f7a697d8eb9" />
 <img width="99" height="55" alt="17685437306156494134890768184306" src="https://github.com/user-attachments/assets/40ccee01-83ea-4f8b-a826-e35561c6c40a" /> <img width="99" height="55" alt="17685443910156109323570452519337" src="https://github.com/user-attachments/assets/ff70f207-e6b5-4e92-a691-794eddcad2d4" /> 
