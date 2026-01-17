@@ -9,6 +9,8 @@
 
    my [strawpage](https://sealwglasses.straw.page) ![17685450908482543459199511744075](https://github.com/user-attachments/assets/f1cdc8af-9060-4d57-b9e2-2f0a02561dee)
 
+   you can find me with cherry, fufu or kiz/medkit (theyre are awesom ok)
+
 ![17685857462735821610594544884407](https://github.com/user-attachments/assets/17868752-55f5-46f4-8364-644e345e9d25)
 
 
