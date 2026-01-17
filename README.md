@@ -22,6 +22,7 @@ homophobic, racist, proshipper, sexist, **etc**...
 <img width="400" height="400" alt="17685439073838610555471910641214" src="https://github.com/user-attachments/assets/7a7e54d9-a3bf-4b69-8ff6-e2993ceace72" />
 
 C+H ***FREELY*** ok.?
+
 Ი︵𐑼
 
 <img width="99" height="55" alt="17685437075894787995082928323334" src="https://github.com/user-attachments/assets/2ad5594a-8ab5-4028-88e6-4f7a697d8eb9" />
