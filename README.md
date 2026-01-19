@@ -1,6 +1,6 @@
 ![17685437533602235982321976614188](https://github.com/user-attachments/assets/0b40f1a6-d4a0-4779-83cc-2b095f2b76a3)
 
-# KAZ , SEVEN
+# KAS , SEVEN
 
 <img width="640" height="256" alt="17685433737482172961633905088183" src="https://github.com/user-attachments/assets/1a780019-a9e8-48eb-b458-466a2e7dccb5" />
 
@@ -10,6 +10,10 @@
    my [strawpage](https://sealwglasses.straw.page) ![17685450908482543459199511744075](https://github.com/user-attachments/assets/f1cdc8af-9060-4d57-b9e2-2f0a02561dee)
 
    you can find me with cherry, fufu or kiz/medkit (theyre are awesom ok)
+
+
+
+i am slimeknight #1 enthusiast trust me
 
 ![17685857462735821610594544884407](https://github.com/user-attachments/assets/17868752-55f5-46f4-8364-644e345e9d25)
 
