@@ -50,4 +50,4 @@ C+H ***FREELY*** ok.?
 ![1768842072291618150735287326734](https://github.com/user-attachments/assets/97769405-4801-4f0b-ad8e-22f01f00c125)
 
 
-> me & chers ok 😂😂
+> me & chers ok 😂😂 (**insert a big platonic**)
