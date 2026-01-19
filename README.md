@@ -51,7 +51,8 @@ C+H ***FREELY*** ok.?
 
 ![17685437533602235982321976614188](https://github.com/user-attachments/assets/0b40f1a6-d4a0-4779-83cc-2b095f2b76a3)
 
-![1768842072291618150735287326734](https://github.com/user-attachments/assets/97769405-4801-4f0b-ad8e-22f01f00c125)
+![17688425114347069901154867609094](https://github.com/user-attachments/assets/d0af76f1-ba48-4379-9559-8d88e46a20e9)
 
 
-> me & chers ok 😂😂 (**insert a big platonic**)
+
+> me & chers ok 😂😂
