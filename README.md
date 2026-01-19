@@ -42,12 +42,12 @@ C+H ***FREELY*** ok.?
 
  
 
-> cherry's ankle-biter and freakzoid stinkerboy
 
 
 
 ![17685437533602235982321976614188](https://github.com/user-attachments/assets/0b40f1a6-d4a0-4779-83cc-2b095f2b76a3)
 
-![17685799263263796132057949060590](https://github.com/user-attachments/assets/25028c59-cabe-41cc-9503-3f5016b243d6)
+![1768842072291618150735287326734](https://github.com/user-attachments/assets/97769405-4801-4f0b-ad8e-22f01f00c125)
 
-> me & chers ok
+
+> me & chers ok 😂😂
