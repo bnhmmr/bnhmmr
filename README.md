@@ -3,5 +3,7 @@
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=8246DC&width=435&lines=this+is+me+btw" alt="Typing SVG" /></a>
 
+[strawpage!](https://strawpage.sealwglasses)
+
 
 > **this is a wip ok**
