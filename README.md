@@ -26,3 +26,5 @@ src="https://github.com/user-attachments/assets/43600ab4-5739-4e7e-ac9d-23a3f6d4
 $$\color{#f08abb}{🌙= afk, \space making \space ponies \space or \space feel \space free \space to \space w2int.}$$
 $$\color{#f08abb}{⛔= \space busy, \space drawing, \space sad/angry, \space iwc \space or \space watching \space videos \space (rarely)}$$
 
+
+$$\color{#2d1943}{\tiny DO \space NOT \space COPY \space MY \space PONIES.}$$
