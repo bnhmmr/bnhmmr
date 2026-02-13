@@ -38,7 +38,7 @@ alt="17709934112391351691871476262963"
 src="https://github.com/user-attachments/assets/a7bf921c-aaf2-4daf-bda9-b3b7f8991d8c" />
 
 
-  $$\color{#ce77a1}{\tiny two \space weirdos}$$
+  $$\color{#ce77a1}{\tiny mi \space are \space all \space stuped i \space lov \space them \space (>ᴗ<U}$$
 </p>
 
 $$\color{#2d1943}{\tiny DO \space NOT \space COPY \space MY \space PONIES.}$$
