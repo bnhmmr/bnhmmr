@@ -23,7 +23,6 @@ src="https://github.com/user-attachments/assets/43600ab4-5739-4e7e-ac9d-23a3f6d4
 
 <img width="640" height="700" alt="17709432851637647161258376654179" src="https://github.com/user-attachments/assets/554d0571-2502-40a4-a851-5bee01ec1181" />
 
-$$\color{#f08abb}{🌙= afk \space or \space feel \space free \space to \space w2int.}$$
+$$\color{#f08abb}{🌙= afk, making \space ponies \space or \space feel \space free \space to \space w2int.}$$
 $$\color{#f08abb}{⛔= \space busy, \space drawing, \space sad/angry, \space iwc \space or \space watching \space videos \space (rarely)}$$
-$$\color{#ce77a1}{\tiny 🟢= \space probably \space making \space ponies \space (late \space replie)}$$
 
