@@ -27,4 +27,14 @@ $$\color{#f08abb}{🌙= afk, \space making \space ponies \space or \space feel \
 $$\color{#f08abb}{⛔= \space busy, \space drawing, \space sad/angry, \space iwc \space or \space watching \space videos \space (rarely)}$$
 
 
+<img width="640" height="700" alt="17709432851637647161258376654179" src="https://github.com/user-attachments/assets/554d0571-2502-40a4-a851-5bee01ec1181" />
+
+<p align="center">
+<img width="190" height="200"
+alt="17709663422926376999694725911413"
+src="https://github.com/user-attachments/assets/861eeda6-d9e5-451c-928e-e953dafc6457" />
+
+  $$\color{#ce77a1}{\tiny two \space weirdos}$$
+</p>
+
 $$\color{#2d1943}{\tiny DO \space NOT \space COPY \space MY \space PONIES.}$$
