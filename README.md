@@ -33,6 +33,10 @@ $$\color{#f08abb}{⛔= \space busy, \space drawing, \space sad/angry, \space iwc
 <img width="190" height="200"
 alt="17709663422926376999694725911413"
 src="https://github.com/user-attachments/assets/861eeda6-d9e5-451c-928e-e953dafc6457" />
+<img width="190" height="200"
+alt="17709934112391351691871476262963"
+src="https://github.com/user-attachments/assets/a7bf921c-aaf2-4daf-bda9-b3b7f8991d8c" />
+
 
   $$\color{#ce77a1}{\tiny two \space weirdos}$$
 </p>
