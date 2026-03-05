@@ -16,7 +16,7 @@ src="https://github.com/user-attachments/assets/43600ab4-5739-4e7e-ac9d-23a3f6d4
 </p>
 
 <p align="center"> 
-<img src="https://image2url.com/r2/default/gifs/1770940060496-bb2aee4e-e6ad-4964-a6e5-f2e020ea30a6.gif" width="50" align="center"> $\color{#f08abb}{c+h \space is \space always \space welcome .}$
+  $\color{#f08abb}{c+h \space is \space always \space welcome .}$
 
   $$\color{#ce77a1}{\tiny heavy \space w2int \space}$$
 
