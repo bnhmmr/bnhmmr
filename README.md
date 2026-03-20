@@ -1,9 +1,7 @@
 <p align="center">
 
-![](https://files.catbox.moe/968sc1.jpeg)
+![17740127443488734066346284127509](https://github.com/user-attachments/assets/f7d9961d-0762-4265-9a7d-550112aafea1)
+</p>
 
-<p align="center">me btw</p>
 
-hi! Kasper/Seven here. <a href="https://docs.google.com/document/d/1z4ul6yPd5LIOJ1_bN6ihUblsQf5wIt-z3MdDw-2Dx3Y/edit?tab=t.0"> this is a doc about Putri (aka SPROUTIRL-KIN/SPROUTKIN-CUPCAKE), please be aware of this. </a>
-
-doc by chickenroulette/john-shedletsky.
+<p align="center">$${favorite \space combo}$$</p>
