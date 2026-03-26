@@ -5,3 +5,18 @@
 
 
 <p align="center">$${favorite \space combo}$$</p>
+
+
+<div align="center">
+
+
+| Profile | GitHub |
+| :---: | :--- |
+| <img src="URL_SPIDERMAN" width="40"> | [](https://github.com) |
+| <img src="URL_AIVEEZ" width="40"> | [](https://github.com) |
+| <img src="URL_KANTO" width="40"> | [](https://github.com) |
+| <img src="URL_YUFFIE" width="40"> | [](https://github.com) |
+| <img src="URL_HACHIWARE" width="40"> | [](https://github.com) |
+| <img src="URL_GAJUSHI" width="40"> | [](https://github.com) |
+| <img src="URL_OUR16BIT" width="40"> | [](https://github.com) |
+| <img src="URL_SOULLOVE" width="40"> | [](https://github.com) |
