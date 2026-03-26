@@ -13,7 +13,7 @@
 
 | Profile | GitHub |
 | :---: | :--- |
-| <img src="URL_SPIDERMAN" width="40"> | [fufu](https://artfufu.github.com) |
+| <img src="URL_SPIDERMAN" width="40"> | [fufu](https://github.com/artfufu) |
 | <img src="URL_AIVEEZ" width="40"> | [](https://github.com) |
 | <img src="URL_KANTO" width="40"> | [](https://github.com) |
 | <img src="URL_YUFFIE" width="40"> | [](https://github.com) |
