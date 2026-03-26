@@ -16,8 +16,5 @@
 | <img src="https://files.catbox.moe/bftuhs.jpeg" width="40"> | [kizkiz](https://github.com/TrueEyeCoreMedkit) |
 | <img src="https://files.catbox.moe/52wibm.jpeg" width="40"> | [fufuu](https://github.com/artfufu) |
 | <img src="https://files.catbox.moe/lzxkaq.jpeg" width="40"> | [donli](https://github.com/sonneIIino) |
-| <img src="URL_YUFFIE" width="40"> | [chers](https://github.com/Cherzyz) |
-| <img src="URL_HACHIWARE" width="40"> | [](https://github.com) |
-| <img src="URL_GAJUSHI" width="40"> | [](https://github.com) |
-| <img src="URL_OUR16BIT" width="40"> | [](https://github.com) |
-| <img src="URL_SOULLOVE" width="40"> | [](https://github.com) |
+| <img src="https://files.catbox.moe/2qciuy.jpeg" width="40"> | [chers](https://github.com/Cherzyz) |
+| <img src="https://files.catbox.moe/ynun4q.jpeg" width="40"> | [guestttt](https://github.com/AcxerSonnelino) |
