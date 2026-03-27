@@ -1,4 +1,10 @@
 <p align="center">
+  <sub>do not copy mi ponies.</sub>
+</p>
+
+<br>
+
+<p align="center">
 
 ![17746039489276452371775090251438](https://github.com/user-attachments/assets/6ee68563-4ce7-4b17-9309-a428edaaf533)
 
