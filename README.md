@@ -1,10 +1,11 @@
 <p align="center">
 
-![17740127443488734066346284127509](https://github.com/user-attachments/assets/f7d9961d-0762-4265-9a7d-550112aafea1)
+![17746039489276452371775090251438](https://github.com/user-attachments/assets/6ee68563-4ce7-4b17-9309-a428edaaf533)
+
 </p>
 
 
-<p align="center">$${favorite \space combo}$$</p>
+<p align="center">$${me}$$</p>
 
 <br>
 
