@@ -11,8 +11,9 @@
 </p>
 
 
-<p align="center">$${me}$$</p>
+<p align="center">me btw</p>
 
+<br>
 <br>
 
 <p align="center">all mi fellas 🤘
