@@ -26,4 +26,3 @@
 | <img src="https://files.catbox.moe/52wibm.jpeg" width="40"> | [fufuu](https://github.com/artfufu) |
 | <img src="https://files.catbox.moe/lzxkaq.jpeg" width="40"> | [donli](https://github.com/sonneIIino) |
 | <img src="https://files.catbox.moe/2qciuy.jpeg" width="40"> | [chers](https://github.com/Cherzyz) |
-| <img src="https://files.catbox.moe/ynun4q.jpeg" width="40"> | [guestttt](https://github.com/AcxerSonnellino) |
