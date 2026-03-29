@@ -1,5 +1,5 @@
 <p align="center">
-  <sub>do not copy mi ponies or presented ponies.</sub>
+  <sub>do not copy mi ponies or gifted ponies.</sub>
 </p>
 
 <br>
