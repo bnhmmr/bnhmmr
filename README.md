@@ -6,7 +6,8 @@
 
 <p align="center">
 
-![17746039489276452371775090251438](https://github.com/user-attachments/assets/6ee68563-4ce7-4b17-9309-a428edaaf533)
+<img width="231" height="219" alt="17767181324811062762132346147413" src="https://github.com/user-attachments/assets/7c255576-2bda-4261-ae2f-0854ba5dfd03" />
+
 
 </p>
 
