@@ -22,6 +22,6 @@
 <div align="center">
 <img width="1500" height="800" alt="17782003141758586564409496355652" src="https://github.com/user-attachments/assets/3e163894-4e9c-41b8-b1f5-0a0dea2a62d0" /> 
 </p>
-<sub>hanked randomly.</sub>
+<sub>ranked randomly.</sub>
 
 
