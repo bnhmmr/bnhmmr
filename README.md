@@ -17,13 +17,11 @@
 <br>
 <br>
 
-<p align="center">all mi fellas 🤘
+<p align="center">all mi fellas⁠♡⁠♡
 
 <div align="center">
+<img width="1500" height="800" alt="17782003141758586564409496355652" src="https://github.com/user-attachments/assets/3e163894-4e9c-41b8-b1f5-0a0dea2a62d0" /> 
+</p>
+<sub>hanked randomly.</sub>
 
-| Profile | GitHub |
-| :---: | :--- |
-| <img src="https://files.catbox.moe/bftuhs.jpeg" width="40"> | [THE kizkiz](https://github.com/TrueEyeCoreMedkit) |
-| <img src="https://files.catbox.moe/52wibm.jpeg" width="40"> | [foofoo](https://github.com/artfufu) |
-| <img src="https://files.catbox.moe/0ctlam.webp" width="40"> | [bnnuy^_^ (noli)](https://github.com/nuIIvoid) |
-| <img src="https://files.catbox.moe/2qciuy.jpeg" width="40"> | [🍒](https://github.com/Cherzyz) |
+
