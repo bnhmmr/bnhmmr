@@ -22,11 +22,8 @@
 <br>
 <br>
 
-<p align="center">all mi fellas⁠♡⁠♡
-
-<div align="center">
-<img width="1500" height="800" alt="17782003141758586564409496355652" src="https://github.com/user-attachments/assets/3e163894-4e9c-41b8-b1f5-0a0dea2a62d0" /> 
+<p align="center">shotout to all my friends ♡
+<p align="center">
+  <sub>love you guys</sub>
 </p>
-<sub>ranked randomly. (homestuck characters based on the personality ok.??) </sub>
-
 
