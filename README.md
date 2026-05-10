@@ -2,6 +2,11 @@
   <sub>do not copy mi ponies or gifted ponies. (i will block you.)</sub>
 </p>
 
+<p align="center">
+  <a href="https://007n7-chan.straw.page/">draw me dirk/bro strider or maybe equius i want to see your beautiful fanart or drawing</a>
+</p>
+
+
 <br>
 
 <p align="center">
