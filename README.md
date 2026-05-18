@@ -19,6 +19,9 @@
 <p align="center">
 my dni is the basic one.
 </p>
+<p align="center">
+also!! i am always nervous first interaction, but don't be shy and bmf ^_^
+</p>
 
 
 </p>
