@@ -3,21 +3,28 @@
 </p>
 
 <p align="center">
-  <a href="https://007n7-chan.straw.page/">draw me dirk/bro strider or maybe equius i want to see your beautiful fanart or drawing</a>
+  <a href="https://007n7-chan.straw.page/">strawpage</a>
+</p>  
+<p align="center">
+<a href="https://rentry.co/IEATCRAYON">rentry on wip</a>
 </p>
 
 
 <br>
 
 <p align="center">
+  
+<img width="200" height="200" alt="17791461294107722796580190297107" src="https://github.com/user-attachments/assets/3124b0d5-cdb3-4a1e-91d6-248c823b8106" />
 
-<img width="229" height="229" alt="17781590328807471342401296154644" src="https://github.com/user-attachments/assets/654f4be1-43ac-48c2-bde3-22b33340f24c" />
+<p align="center">
+my dni is the basic one.
+</p>
 
 
 </p>
 
 
-<p align="center">my husband ↑↑</p>
+<p align="center">
 
 <br>
 <br>
