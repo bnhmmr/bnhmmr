@@ -23,7 +23,7 @@ my dni is the basic one.
 also!! i am always nervous first interaction, but don't be shy and bmf ^_^
 </p>
 <p align="center"> 
-I AM BRAZILIAN so my english is not that good. BUT, I'm almost fluent in english.
+<sub>note: I AM BRAZILIAN so my english is not that good.</sub>
 </p>
 
 
