@@ -41,6 +41,6 @@ also!! i am always nervous first interaction, but don't be shy and bmf ^_^
 
 <p align="center">shotout to all my friends ♡
 <p align="center">
-  <sub>love you guys</sub>
+  <sub>love you guys kisses all of you in the head</sub>
 </p>
 
