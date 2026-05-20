@@ -8,6 +8,10 @@
 <p align="center">
 <a href="https://rentry.co/IEATCRAYON"><sub>rentry on wip</sub></a>
 </p>
+<p align="center">
+<a href="https://pronouns.page/@kasssper">
+<sub>pronouns</sub></a>
+</p>
 
 
 <br>
