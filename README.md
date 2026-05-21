@@ -12,7 +12,10 @@
 <a href="https://pronouns.page/@kasssper">
 <sub>pronouns</sub></a>
 </p>
+<p align="center">
+<a href="https://kasperperpeperper.notepin.co/"><sub>kintype</sub></a>
 
+<br>
 
 <br>
 
