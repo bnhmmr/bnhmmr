@@ -48,3 +48,14 @@ also!! i am always nervous first interaction, but don't be shy and bmf ^_^
   <sub>love you guys kisses all of you in the head</sub>
 </p>
 
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+
+<img width="560" height="990" alt="17793673696663466044591100441858" src="https://github.com/user-attachments/assets/c3ca0c79-4123-48b2-aa2f-38c8692c3913" />
+
+
