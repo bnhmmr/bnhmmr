@@ -18,7 +18,7 @@
 
 <p align="center">
   
-<img width="200" height="200" alt="17791461294107722796580190297107" src="https://github.com/user-attachments/assets/3124b0d5-cdb3-4a1e-91d6-248c823b8106" />
+<img width="150" height="150" alt="17791461294107722796580190297107" src="https://github.com/user-attachments/assets/3124b0d5-cdb3-4a1e-91d6-248c823b8106" />
 
 <p align="center">
 my dni is the basic one.
