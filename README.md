@@ -59,6 +59,6 @@ also!! i am always nervous first interaction, but don't be shy and bmf ^_^
 <br>
 <br>
 
-<img width="560" height="990" alt="17793673696663466044591100441858" src="https://github.com/user-attachments/assets/c3ca0c79-4123-48b2-aa2f-38c8692c3913" />
+<img width="560" height="660" alt="17793673696663466044591100441858" src="https://github.com/user-attachments/assets/c3ca0c79-4123-48b2-aa2f-38c8692c3913" />
 
 
