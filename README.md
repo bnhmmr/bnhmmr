@@ -31,7 +31,7 @@ also!! i am always nervous first interaction, but don't be shy and bmf ^_^
 </p>
 <p align="center"> 
 <p align="center">
-  digital artist and animator ^_^
+  digital artist and animator (⁠*⁠´⁠ω⁠｀⁠*⁠)
 </p>
 <sub>*note: i am BRAZILIAN so understand that my English is not that good.</sub>
 </p>
