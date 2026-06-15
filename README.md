@@ -39,7 +39,9 @@ also!! i am always nervous first interaction, but don't be shy and bmf ^_^
 <br>
 
 <p align="center">
-<img width="111" height="60" alt="17792829884323957552015077823614" src="https://github.com/user-attachments/assets/4e1e9cf9-2861-44d3-bf7d-8142350eda75" /> <img width="111" height="58" alt="17792836164277082701408548377406" src="https://github.com/user-attachments/assets/eb15fb84-0eba-45ae-9c5b-c515c0400fe8" />
+<img width="111" height="60" alt="17792829884323957552015077823614" src="https://github.com/user-attachments/assets/4e1e9cf9-2861-44d3-bf7d-8142350eda75" /> <img width="111" height="60" alt="17815370623805743070842995644464" src="https://github.com/user-attachments/assets/6b82c064-9da9-4c84-b38c-999fe5b8a19f" /> <img width="111" height="60" alt="17815371626436561433810054774571" src="https://github.com/user-attachments/assets/d4b6830b-3b92-4d53-a1ed-313616419751" /> <img width="111" height="60" alt="17815372962511046330727235619622" src="https://github.com/user-attachments/assets/bebaede8-324c-47b1-b16a-7407e125a3af" />
+
+
 
 <br>
 
