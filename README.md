@@ -3,18 +3,18 @@
 </p>
 
 <p align="center">
-  <a href="https://007n7-chan.straw.page/"><sub>strawpage</sub></a>
-</p>  
+  <a href="https://007n7-chan.straw.page/"><sub>strawpage</sub></a>  
 <p align="center">
 <a href="https://rentry.co/IEATCRAYON"><sub>rentry on wip</sub></a>
-</p>
 <p align="center">
 <a href="https://pronouns.page/@kasssper">
 <sub>pronouns</sub></a>
-</p>
 <p align="center">
 <a href="https://kasperperpeperper.notepin.co/"><sub>kintype</sub></a>
-
+<p align="center">
+  <a
+  href="https://jawke.atabook.org/"
+  ><sub>ata</sub>
 <br>
 
 <br>
