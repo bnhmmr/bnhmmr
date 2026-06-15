@@ -10,8 +10,6 @@
 <a href="https://pronouns.page/@kasssper">
 <sub>pronouns</sub></a>
 <p align="center">
-<a href="https://kasperperpeperper.notepin.co/"><sub>kintype</sub></a>
-<p align="center">
   <a
   href="https://jawke.atabook.org/"
   ><sub>ata</sub>
