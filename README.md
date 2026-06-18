@@ -20,6 +20,8 @@
 <p align="center">
   
 <img width="150" height="150" alt="17791461294107722796580190297107" src="https://github.com/user-attachments/assets/3124b0d5-cdb3-4a1e-91d6-248c823b8106" />
+<p align="center">
+<img width="57" height="18" alt="17817591094478084821106501477792" src="https://github.com/user-attachments/assets/a817d9b5-9c79-4d4b-b396-cd5bfbfa9e7b" />
 
 <p align="center">
 my dni is the basic one.
