@@ -7,7 +7,7 @@
 <p align="center">
 <a href="https://rentry.co/IEATCRAYON"><sub>rentry on wip</sub></a>
 <p align="center">
-<a href="https://pronouns.page/@kasssper">
+<a href="https://pronouns.cc/@KASPWER">
 <sub>pronouns</sub></a>
 <p align="center">
   <a
