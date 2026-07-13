@@ -18,10 +18,11 @@
 <br>
 
 <p align="center">
-  
-<img width="150" height="150" alt="17791461294107722796580190297107" src="https://github.com/user-attachments/assets/3124b0d5-cdb3-4a1e-91d6-248c823b8106" />
-<p align="center">
-<img width="57" height="18" alt="17817591094478084821106501477792" src="https://github.com/user-attachments/assets/a817d9b5-9c79-4d4b-b396-cd5bfbfa9e7b" />
+
+  <img width="200" height="190" alt="17839796742767755997984731965616" src="https://github.com/user-attachments/assets/ce862ba0-4bff-4121-9343-818059bf935d" />
+
+
+
 
 <p align="center">
 my dni is the basic one.
@@ -55,15 +56,5 @@ also!! i am always nervous first interaction, but don't be shy and bmf ^_^
 <p align="center">
   <sub>love you guys kisses all of you in the head</sub>
 </p>
-
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-
-<img width="560" height="660" alt="17793673696663466044591100441858" src="https://github.com/user-attachments/assets/c3ca0c79-4123-48b2-aa2f-38c8692c3913" />
 
 
