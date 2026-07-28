@@ -11,8 +11,7 @@
 <sub>pronouns</sub></a>
 <p align="center">
   <a
-  href="https://jawke.atabook.org/"
-  ><sub>ata</sub>
+
 <br>
 
 <br>
