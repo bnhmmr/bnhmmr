@@ -5,7 +5,7 @@
 <p align="center">
   <a href="https://007n7-chan.straw.page/"><sub>strawpage</sub></a>  
 <p align="center">
-<a href="https://rentry.co/augustten"><sub>rentry</sub></a>
+<a href="https://rentry.co/c5ptor"><sub>rentry</sub></a>
 <p align="center">
 <a href="https://pronouns.cc/@KASPWER">
 <sub>pronouns</sub></a>
