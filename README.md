@@ -20,4 +20,4 @@ I still loving all my friends in pony town! but if they don't see me ever again:
 </p>
 <p align="center"
 
-  also, here my [strawpage](https://kassitu/straw.page/) if you want to send something!
+  also, here my [strawpage](https://nerd-fudido/straw.page/) if you want to send something!
